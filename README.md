@@ -1,2 +1,3 @@
 ![Ruby](https://cdn.phototourl.com/member/2026-11-10-3efc94ee-10bf-49b9-928f-bc28cea53dab.png)
-She is Ruby. She was created on November 11, 2025, and one day in January 2026 I deleted her. I recreated her on October 21, 2026, resetting her abilities, personality, and some other things. My oc's ships have Bassie, Dandy and Waxwell *(I like Bassie x Ruby more THOUGH I don't like some Yuri ship.)* SHE'S Ruby gemstone. my fav oc!!!
+She is Ruby gemstone or Known as Ruby!. My oc's ships have Bassie, Dandy and Waxwell *(I like Bassie x Ruby more THOUGH I don't like some Yuri ship.)*
+- You can draw my OCs with canon characters or OC x Canon! I'll consider that a gift🎁! ,, you can draw for free if you want!
